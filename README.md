@@ -1,1 +1,2 @@
-# star-embracing-swordmaster
+# Star-Embracing Swordmaster
+Vlad est un jeune vagabond du bidonville de Shoara qui admire les chevaliers depuis toujours. Sa vie bascule le jour où une voix commence à résonner dans sa tête après avoir été frappé par un éclair noir, et où le chevalier de la lune bleue apparaît soudainement devant lui.
